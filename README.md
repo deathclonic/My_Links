@@ -1,5 +1,7 @@
 # My_Links
 
+Tumblr - https://www.tumblr.com/blog/deathclonic
+
 Discord - https://discord.gg/gqpXMb6
 
 Twitch - https://www.twitch.tv/deathclonic
