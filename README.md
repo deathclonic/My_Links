@@ -1,17 +1,17 @@
 # My_Links
 
-Tumblr - https://www.tumblr.com/blog/deathclonic
+Tumblr: https://www.tumblr.com/blog/deathclonic
 
-Discord - https://discord.gg/gqpXMb6
+Discord: https://discord.gg/gqpXMb6
 
-Twitch - https://www.twitch.tv/deathclonic
+Twitch: https://www.twitch.tv/deathclonic
 
-Youtube - https://www.youtube.com/c/DeathClonic
+Youtube: https://www.youtube.com/c/DeathClonic
 
-ArtStation - https://www.artstation.com/deathclonic
+ArtStation: https://www.artstation.com/deathclonic
 
-Twitter - https://twitter.com/deathclonic
+Bandcamp: https://deathclonic.bandcamp.com/
 
-Patreon - https://www.patreon.com/deathclonic
+Patreon: https://www.patreon.com/deathclonic
 
 Favorite movies/shows https://www.imdb.com/user/ur133211034/ratings?sort=your_rating,desc&ratingFilter=0&mode=detail&ref_=undefined&lastPosition=0
